@@ -1,1 +1,1 @@
-# Aligned-
+# Aligned
